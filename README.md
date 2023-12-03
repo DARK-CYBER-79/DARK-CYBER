@@ -4,6 +4,12 @@
 </h3>
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Neuton&size=25&color=30FF40&background=000000&center=true&vCenter=true&width=360&height=60&lines=Hello+World%2C+I'm+𝗜𝗦𝗠𝗔𝗜𝗟+Here+🤙;𝙸𝚃'𝚜+𝙽𝙾𝚃+𝙰+𝙹𝚄𝚂𝚃+𝙽𝙰𝙼𝙴+𝙱𝚁𝙾+🥱;𝙸𝚃'𝚜+𝙰+𝙱𝚁𝙰𝙽𝙳+🔥;Respect+𝗜𝗦𝗠𝗔𝗜𝗟+🥀;Today+I+Will+Tell+You+😇;Please+Follow+My+GitHub+🙏;Thanks+My+All+Friend+🤙+🥰;Love+From+Bangladesh🇧🇩+support+pabo+to)](https://git.io/typing-svg)
+________𝑵𝑨𝑴𝑬__𝗜𝗦𝗠𝗔𝗜𝗟__ 
+________𝑭𝑹𝑶𝑴__𝑩𝑨𝑵𝑮𝑳𝑨𝑫𝑬𝑯 _
+________𝑵𝑼𝑴𝑩𝑬𝑹 01940431844__
+________𝑰𝑴𝑶_01940431844__
+________𝑾𝑶𝑹𝑲__𝑷𝒀𝑻𝑯𝑶𝑵__
+________𝑬𝑯𝑪_𝑪𝒀𝑩𝑬𝑹_𝑯𝑨𝑪𝑲𝑰𝑵𝑮__
 <img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="25">
 
 </h3>

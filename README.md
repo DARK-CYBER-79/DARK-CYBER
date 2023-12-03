@@ -22,13 +22,13 @@ ___🦋(𝗜𝗦𝗠𝗔𝗜𝗟)🦋___
 <img align="right" alt="Coding" width="400" src="https://media.tenor.com/rePDfDWO3XoAAAAd/hacking.gif">
 (__✏️𝗜𝗦𝗠𝗔𝗜𝗟✏️__)
 <h1 align="center">Hi 👋, I'm 𝗜𝗦𝗠𝗔𝗜𝗟</h1>
-<h3 align="center">A passionate Software Engineer from 𝑩𝑨𝑵𝑮𝑳𝑨𝑫𝑬𝑺 𝗜𝗦𝗠𝗔𝗜𝗟  </h3>
+<h3 align="center">A passionate Software Engineer from 𝘽𝘼𝙉𝙂𝙇𝘼𝘿𝙀𝙎𝙃 𝙀𝙃𝘾 𝙄𝙎𝙈𝘼𝙄𝙇  </h3>
 ___🦋(𝗜𝗦𝗠𝗔𝗜𝗟)🦋___
 <img align="right" alt="coding" width="400" src="https://user-images.githubusercontent.com/55389276/140866485-8fb1c876-9a8f-4d6a-98dc-08c4981eaf70.gif">
 ___🦋(𝗜𝗦𝗠𝗔𝗜𝗟)🦋___
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=𝗜𝗦𝗠𝗔𝗜𝗟-pmishra&label=Profile%20views&color=0e75b6&style=flat" alt="𝗜𝗦𝗠𝗔𝗜𝗟-pmishra" /> </p>
 
-- 👨‍💻 All of my 𝑻𝑬𝑳𝑬𝑮𝑹𝑨𝑴-𝑪𝑨𝑳𝑳-𝑩𝑶𝑿 are available at [https://t.me/ehcehcemran0011223311cyber99/simplified_learner](https://t.me/ehcehcemran0011223311cyber99)
+- 👨‍💻 All of my 𝑻𝑬𝑳𝑬𝑮𝑹𝑨𝑴-𝑪𝑨𝑳𝑳-𝑩𝑶𝑿 are available at [https://M_R_BANGO](https://t.me/M_R_BANGO)
 ___🦋(𝗜𝗦𝗠𝗔𝗜𝗟)🦋___
 - ⚡ Fun fact **I am funny😅**
 
